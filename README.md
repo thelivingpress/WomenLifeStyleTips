@@ -3,7 +3,7 @@ Source of Information, lifestyle tips, news updates and more.
 =================
 
 <H1>Home Remedies to Knock Out the Acne.</H1>
-<br><br>
+<br>
 You love to see your face in the mirror unless some acne spots appearing on it.  It’s very irritating to see this ugly face condition appearing every now and then. Then what’ your next step? You go to grab some acne creams to overcome blackheads, pimples, greasy skin, and scarring. But sometime, it backfires as the chemical carrying by these products reach harm to the skin. If you have witnessed the hazards of these chemical skin care products then you have to choose an alternative: Herbal care treatment. For this you need not to rush to the nearest parlor, but to your kitchen. You will amaze to find that how these <b><a href="http://www.thelivingpress.com/beauty/skincare/">acne home remedies</a></b> do magic to your face without any side effects.
 <br>
 <b> (a) Apple Cider Vinegar: </b>
